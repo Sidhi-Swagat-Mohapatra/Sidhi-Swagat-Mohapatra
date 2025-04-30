@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sidhi-Swagat-Mohapatra
-- 👀 I’m interested in New Things
+- 👀 I’m interested in Learning New Things
 - 🌱 I’m currently learning Microsevice
 - 📫 How to reach me sidhiswagatmohapatra@gmail.com
 
